@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LFYOT
+- 🌱 I’m currently working at Artefact
+- 📫 How to reach me : lauryfyot.atf@gmail.com
